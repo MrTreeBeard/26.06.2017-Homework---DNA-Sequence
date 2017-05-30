@@ -4,3 +4,5 @@ e tuy to, zada4a
 praim go da gurmi!!! 6go opraim... mai...
 
 ama piratki!!!!
+
+ey sq sh go vurjim
